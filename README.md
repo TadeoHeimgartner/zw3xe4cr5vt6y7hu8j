@@ -1,1 +1,1 @@
-# zw3xe4cr5vt6y7hu8j
+Plantilla del código C34
